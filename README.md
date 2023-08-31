@@ -1,1 +1,1 @@
-# pemsamento1E2023
+# pensamento1E2023
