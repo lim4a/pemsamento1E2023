@@ -1,0 +1,1 @@
+# pemsamento1E2023
