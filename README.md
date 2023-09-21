@@ -1,8 +1,8 @@
 # pensamento1E2023
 
-oii!meu nome é Victoria Lima.
+oii!me chamo Victoria Lima.
 
-sou a mamãe da Stella.
+sou a mamãe da Stella Vitoria.
 
 estou estudando pelo alura.
 
